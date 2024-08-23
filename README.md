@@ -75,8 +75,6 @@ https://github.com/user-attachments/assets/8b09a648-a370-4e30-8626-e854477e463f
 https://github.com/user-attachments/assets/3a454da0-ea54-42a6-950f-bb2c331d1a5c
 
 
-
-
 https://github.com/user-attachments/assets/1acfee96-5233-4add-a4e7-d25d15b4f27a
 
 ![Camera pohoto](https://github.com/user-attachments/assets/6e3f6366-1955-47d8-affd-2459674d93c9)
